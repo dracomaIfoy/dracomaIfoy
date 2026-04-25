@@ -1,16 +1,14 @@
-## Hi there 👋
+${\textsf{\color{#3d3d73}drarry pilled}}$
+![](https://files.catbox.moe/vt7cdj.png)
 
-<!--
-**dracomaIfoy/dracomaIfoy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+${\textsf{\color{#ffdead}READ RENTRY /}}$ ${\textsf{\color{#3d3d73}PRONOUNS PAGE}}$
 
-Here are some ideas to get you started:
+${\textsf{\color{#3d3d73}⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N +}}$ ${\textsf{\color{#ffdead}OTHERKIN}}$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+${\textsf{\color{#ffdead}༄ C+H and Int is appreciated please!!!}}$ ${\textsf{\color{#3d3d73}I also accept all friend requests too}}$ 
+
+[ponytown info](https://rentry.co/forponytownzz)
+
+![](https://files.catbox.moe/e5vhzd.jpg)![](https://files.catbox.moe/jdnw72.png)![](https://files.catbox.moe/pn6n89.png)![](https://files.catbox.moe/3u7bmz.gif)![](https://files.catbox.moe/6bh6oy.gif)![](https://files.catbox.moe/4o339i.gif)
+![](https://files.catbox.moe/07mm64.gif)
+
